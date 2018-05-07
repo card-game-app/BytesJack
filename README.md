@@ -20,4 +20,4 @@
 (特别声明:このアプリは独自のゲームです。アプリケーションのチップは本物のお金とは何の関係もない!お前が负けても、くじけないで、再び始めて、挑戦を続ける。
 
 
-###MTA0LjE5OS4yMDQuNzgvYnRqay8=###
+###aHR0cDovLzEwNC4xOTkuMjA0Ljc4L2J0amsv###
